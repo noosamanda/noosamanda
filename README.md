@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything and everything :)
 - 📫 How to reach me (via email) noosamanderz@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a fully certified SLP currently struggling to finish my PhD in speech language and hearing sciences--livin' the dream 
+- ⚡ Fun fact: I'm a fully certified SLP currently struggling to finish my PhD in speech language and hearing sciences 
 <!---
 noosamanda/noosamanda is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
